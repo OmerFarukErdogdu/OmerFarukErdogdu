@@ -23,4 +23,4 @@
 
 ### 📫 Bana Ulaşın
 - **E-posta:** omerfarukerdogdu4@gmail.com
-- **LinkedIn:** www.linkedin.com/in/omerfarukerdogdu(#)
+- **LinkedIn:** www.linkedin.com/in/omerfarukerdogdu
